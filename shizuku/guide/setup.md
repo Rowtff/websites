@@ -3,6 +3,15 @@
 [[toc]]
 
 ## Start Shizuku
+hughhjui
+7uhhm
+uijjmcc.hhbbb
+uum
+ouhm
+j7k
+j
+ummmi8.7kff7
+7th8jvrujfhut77kh 
 
 Shizuku supports startup in the following three ways.
 
